@@ -30,8 +30,8 @@ Soy un desarrollador con **3 años de experiencia** en diseño y desarrollo web.
 ---
 
 ## 💬 Hablemos  
-📩 **Email:** [marvinworkandshill@gmail.com](mailto:marvinworkandshill@gmail.com)  
-🌍 **Web:** [nerodev.xyz](https://nerodev.xyz)  
+📩 **Email:** [marvinworkandshill@gmail.com](mailto:marvin.dev.web@gmail.com)  
+🌍 **Web:** [MiCasino.com]([https://miCasino](https://casinoudeg.onrender.com/)  
 🐦 **TikTok:** [@Mard3v](https://www.tiktok.com/@Mard3v)  
 
 ---
